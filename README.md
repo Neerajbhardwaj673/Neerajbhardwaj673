@@ -1,11 +1,10 @@
 - 👋 Hi, I’m @Neerajbhardwaj
-- I am 21 years old .
+- I am 22 years old .
 - living in Punjab,Ramgrah,derabssi 
 - 👀 I’m interested in Leraning Python and Making More codes 
-- 🌱 i Have Done My Cse Diploma in Agt,2024 . 
+- 🌱 i  Am Doing Btech  CSE. 
 - 💞️ I’m looking - to collaborate on Someone plz Teachme About More on Code
 - 📫 How to reach me - This is My gmail (realme391bhardwaj@gmail.com)
-- 😄 Pronouns: ...
 - ⚡ Fun fact: ... - I want to Be a Good developer
 - 
 
